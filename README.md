@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/adityabarodiya?tab=repositories](https://github.com/adityabarodiya?tab=repositories)
 
-- 💬 Ask me about **React Js, Express Js, Node Js, MongoDB**
+- 💬 Ask me about **React Js, Express Js, Node Js, MongoDB, Compitative Programming, C++, Java**
 
 - 📫 How to reach me **adi25kht@gmail.com**
 
