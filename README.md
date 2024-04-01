@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **adi25kht@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1OPInLFDplaanTit25QDIhf-x5QYldj7a/view?usp=drive_link](https://drive.google.com/file/d/1OPInLFDplaanTit25QDIhf-x5QYldj7a/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1x9fXmP7_GIqBQ7LNDegx_uDGJOtU66Ad/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
